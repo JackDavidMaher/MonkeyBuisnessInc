@@ -1,3 +1,3 @@
-What the horse considers play, the monkey considers buisness
+What the horse considers play, the monkey considers business
 
 ![Alt text](SeriousBuisness.jpg)
